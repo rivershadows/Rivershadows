@@ -21,6 +21,6 @@ Here are some ideas to get you started:
 
 I really like calm music but I also love rock, K-pop, pop, electronic, banda, and corridos. My favorite singers are 𝙡𝙖𝙣𝙖 𝙙𝙚𝙡 𝙧𝙚𝙮, 𝙗𝙞𝙡𝙡𝙞𝙚 𝙀𝙞𝙡𝙞𝙨𝙝, 𝙩𝙝𝙚 𝙣𝙚𝙞𝙜𝙝𝙗𝙤𝙧𝙝𝙤𝙤𝙙, 𝙗𝙡𝙖𝙘𝙠𝙥𝙞𝙣𝙠.𝙩𝙬𝙞𝙘𝙚, 𝙨𝙩𝙖𝙮 𝙠𝙞𝙙, 𝘼𝙡𝙚𝙭 𝙂, 𝙨𝙖𝙗𝙧𝙞𝙣𝙖 𝘾𝙖𝙧𝙥𝙚𝙣𝙩𝙚𝙧and many more
 
-
+si  me ves parado ahí solo hablame o no se me da pena hablar primero, que no te de miedo soy buena Onda papu
 
 	
